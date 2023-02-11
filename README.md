@@ -29,6 +29,25 @@ REACT JS PROJECTS
 
 ----->https://bandaruLayout.ccbp.tech
 
+----->.https://bhagavathiINCNT.ccbp.tech
+
+----->. https://bhagavathiVTCTY.ccbp.tech
+
+----->. https://bhagavathiMYTSK.ccbp.tech
+
+----->. https://bhagavathiMUSIC.ccbp.tech
+
+-----> https://bhagavathiCHRCT.ccbp.tech
+
+-----> https://bhagavathiTRLGD.ccbp.tech
+
+-----> https://bhagavathiEBank.ccbp.tech
+
+-----> https://bhagavathiPRJSC.ccbp.tech
+
+-----> https://bhagavathiTXTED.ccbp.tech
+
+
 React-mini-projects:-
 
 -----> https://bhagavathibkhb.ccbp.tech/login
