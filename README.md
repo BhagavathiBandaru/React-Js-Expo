@@ -28,7 +28,12 @@ REACT JS PROJECTS
 ----->https://bandaruContext.ccbp.tech
 
 ----->https://bandaruLayout.ccbp.tech
+
+React-mini-projects:-
+
+-----> https://bhagavathibkhb.ccbp.tech/login
  
+-----> https://bandarubookhub.ccbp.tech/
  ********************************************************************************************************************************************************************
 
 DYNAMIC--WEB-PAGE-DESIGN-FRAME-WORKS
