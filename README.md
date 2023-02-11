@@ -91,6 +91,11 @@ DYNAMIC--WEB-PAGE-DESIGN-FRAME-WORKS
 
 ----->.https://bhagavathitrflt.ccbp.tech/
 
+ ----->..https://bhagavathievent.ccbp.tech/
+ 
+ ----->..https://bhagavathicntr.ccbp.tech/
+ 
+ ----->..https://bhagavathinumgm.ccbp.tech/
 
 
 
