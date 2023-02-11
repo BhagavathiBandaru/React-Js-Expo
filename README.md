@@ -1,4 +1,6 @@
 # React-Js-Expo
+
+REACT JS PROJECTS 
  1.Published Successfully!. Check at https://bandarutimeline.ccbp.tech/
  2.Published Successfully!. Check at https://nxtAut2debug.ccbp.tech
 3.Published Successfully!. Check at https://bandaruEventSts.ccbp.tech
@@ -16,8 +18,58 @@
 
 
 
+Static-WEB-PAGE-DESIGN-FRAME-WORKS
 
-    
+----->https://bhagavathitour.ccbp.tech/
+
+----->https://bandaruproject.ccbp.tech/
+
+----->https://bandarubookstr.ccbp.tech/
+
+----->https://bandarumusicpg.ccbp.tech/
+
+----->https://bandaruquizpg.ccbp.tech/
+
+----->https://bandaruconferpg.ccbp.tech/
+
+----->https://bandaruphnspect.ccbp.tech/
+
+----->https://bandarumoviepg.ccbp.tech/
+
+----->https://bandarutourpg.ccbp.tech/
+
+----->https://bandarutourpg1.ccbp.tech/
+
+------>https://bandarutourpgg.ccbp.tech/
+
+----->https://bandarucvdpg.ccbp.tech/
+
+----->https://bandarucrcktpg.ccbp.tech/
+
+----->https://bandaruhomepg.ccbp.tech/
+
+----->https://bandarunewspage.ccbp.tech/
+
+----->https://bandaruadvcvrpg.ccbp.tech/
+
+----->https://torismddetailsc.ccbp.tech/
+
+----->https://diwaliintopage.ccbp.tech/
+
+----->https://bandarunvegnpg.ccbp.tech/
+
+------>https://bandarumealpg.ccbp.tech/
+
+------>https://bandarucvrpage.ccbp.tech/
+
+----->https://bandaruchatpage.ccbp.tech/
+
+----->https://bandarutourpg2.ccbp.tech/
+
+---->https://bandarutourpg1.ccbp.tech/
+
+
+
    
 
 
